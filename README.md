@@ -8,7 +8,9 @@ Categoria: **Segurança**
 
 Público-alvo: **Mulheres**
 
-Proposta de valor única: **Funciona**
+Proposta de valor única: Angela é o anjo da guarda virtual que oferece tranquilidade e segurança para você ir a eventos sem medo. 
+
+Facebook: [Conheça a Angela](http://www.facebook.com/Angelaapp)
 
 Desafio: 
 
