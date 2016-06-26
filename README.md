@@ -8,7 +8,7 @@ Categoria: **Segurança**
 
 Público-alvo: **Mulheres**
 
-Proposta de valor única: Angela é o anjo da guarda virtual que oferece tranquilidade e segurança para você ir a eventos sem medo. 
+Proposta de valor única: Angela é um app que funciona como um anjo da guarda virtual que oferece tranquilidade e segurança para você ir a eventos sem medo, alertando seus amigos mais próximos quando você estiver em situação de perigo. 
 
 Facebook: [Conheça a Angela](http://www.facebook.com/Angelaapp)
 
