@@ -1,5 +1,7 @@
 # Grupo Tutoras
 
+![Alt text](http://projetotutoras.com/angelapp/logoAngela.png)
+
 Nome do projeto: **Angela**
 
 Categoria: **Segurança**
